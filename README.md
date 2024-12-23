@@ -1,5 +1,5 @@
 # @carolinaisslaying 🏳️‍⚧️
-Kia ora e hoa! My name is Carolina (she/her), and I am a Law and Arts student from Aotearoa who also codes and their spare time (which is very little these days, lol). 
+Kia ora e hoa! My name is Carolina (she/her), and I am a Law, Criminology and Sociology student from Aotearoa who also codes and their spare time. 
 
 I have been coding for a decent chunk of time since 2018, completely self-teaching myself how to over the years which has allowed me to develop knowledge in a variety of languages.
 
